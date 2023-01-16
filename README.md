@@ -2,4 +2,5 @@
 
 Olá! Bem vinde ao meu livro de receitas &#x1F44B;&#x1F3FE;
 
-- Panqueca Americana
+- Panqueca Americana &#x1F95E;
+- Bolo de Banana &#x1F34C;
