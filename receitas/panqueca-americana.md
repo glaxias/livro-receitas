@@ -1,4 +1,4 @@
-# Panqueca Americana &#x1F95E
+# Panqueca Americana &#x1F95E;
 
 ### Ingredientes 
 - 1 xícara (chá) de farinha de trigo
